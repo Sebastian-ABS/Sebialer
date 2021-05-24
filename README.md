@@ -1,2 +1,0 @@
-# Sebialer
-Nice person!! XD
